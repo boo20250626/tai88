@@ -27,7 +27,7 @@
 
 点击访问：<a href="https://heiliao562-2ld.pages.dev/">黑料网今日黑料独家爆料</a>
 
-点击访问：<a href="hhttps://heiliao560.pages.dev/">黑料专区爆料黑料网今日黑料首页</a>
+点击访问：<a href="https://heiliao560.pages.dev/">黑料专区爆料黑料网今日黑料首页</a>
 
 点击访问：<a href="https://heiliao672.pages.dev/">黑料社区黑料传送门不迷路</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：想找好看的Telegram频道？《黑料大事记》�
 
 黑料大事记详细梳理娱乐圈与网红界的重要爆料事件，从爆发到发酵，时间线清晰，内容真实。它不仅记录每一次舆论风暴的起点，也让吃瓜群众轻松回顾往年大瓜，是了解圈内内幕的绝佳工具。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/boo20250626/tai88）</span>
